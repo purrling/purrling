@@ -6,7 +6,8 @@
 <img src="https://komarev.com/ghpvc/?username=purrling&color=E5BEB5&style=flat&label=_littl_muddy_pawz_" /> <p align="center">
 <br>
 
-<p align="center"> 18yo,　antiharrassment,　wip </p> 
+<p align="center"> 18yo,　antiharrassment,　traumagen osdd-1b sys </p> 
+<p align="center"> links soon :3 big wipp hnhhh </p> 
 <br>
 
 
