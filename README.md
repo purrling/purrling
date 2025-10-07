@@ -1,13 +1,17 @@
-<p align="center">
-  <img src="https://media.tenor.com/x58nbea7Q7AAAAAj/genshin-impact-official-venti.gif" width="300" height="300%"/>
-</p>
+<div align="center">
+
+# ${\textsf{\color{#FAE3C6}uhmm haillo wip, Ok?}}$
+</div>
+
 <p align="center">
 </a>
-<img src="https://komarev.com/ghpvc/?username=purrling&color=E5BEB5&style=flat&label=_littl_muddy_pawz_" /> <p align="center">
+<img src="https://komarev.com/ghpvc/?username=purrling&color=FAA4BD&style=flat&label=_silly_text_" /> <p align="center">
+<p align="center">
+  <img src="https://media.tenor.com/OAOLGVNKsSMAAAAj/jack-o-jack-o-valentine.gif" width="200" height="200%"/>
+</p>
 <br>
 
-<p align="center"> 18yo,　antiharrassment,　traumagen osdd-1b sys </p> 
-<p align="center"> links soon :3 big wipp hnhhh </p> 
+<p align="center"> hi this is a wip, shoo... </p> 
 <br>
 
 
