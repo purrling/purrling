@@ -7,7 +7,7 @@
 </a>
 <img src="https://komarev.com/ghpvc/?username=purrling&color=FAA4BD&style=flat&label=_silly_text_" /> <p align="center">
 <p align="center">
-  <img src="https://media.tenor.com/OAOLGVNKsSMAAAAj/jack-o-jack-o-valentine.gif" width="200" height="200%"/>
+  <img src="https://media.tenor.com/_tSHeVYyELIAAAAj/harmony-clownfish-splatoon.gif" width="200" height="200%"/>
 </p>
 <br>
 
