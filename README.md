@@ -11,7 +11,7 @@
 </p>
 <br>
 
-<p align="center"> hi this is a wip, shoo... </p> 
+<p align="center"> hi this is a wip, shoo...placeholder theme bcuz idk what im doing </p> 
 <br>
 
 
