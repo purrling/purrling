@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/d48994e233c8e8961223c301c95036d2/4a06054aa8bfb3e9-af/s250x400/57207b47207b31d8cde328585ce6db362ed9913c.pnj" width="300" height="300%"/>
+  <img src="https://media.tenor.com/x58nbea7Q7AAAAAj/genshin-impact-official-venti.gif" width="300" height="300%"/>
 </p>
 <p align="center">
 </a>
